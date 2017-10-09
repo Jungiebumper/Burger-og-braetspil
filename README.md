@@ -8,6 +8,10 @@
 
 3 kg ovnkartofler. Gerne forskellige slags, men der skal være gitterfritter!
 
+Syltede agurker
+
+2 store avocado (kun hvis de er bløde og modne)
+
 1 iceberg
 
 2 røde peberfrugt
