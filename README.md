@@ -2,7 +2,9 @@
 
 30 burgerboller
 
-2.25 kg kød
+2.7 kg kød
+
+3 pakker bacon
 
 20 skiver ost (cirka)
 
@@ -20,6 +22,4 @@ Syltede agurker
 
 500 g tomater
 
-2 dåser kidneybønner
-
-BBQ sauce (køb separat, den er til Marcus)
+2 pakker Naturli Hakket
