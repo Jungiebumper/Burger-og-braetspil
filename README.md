@@ -1,8 +1,8 @@
 # Burger-og-braetspil
 
-28 burgerboller
+30 burgerboller
 
-2.5 kg kød
+2.7 kg kød
 
 3 pakker bacon
 
